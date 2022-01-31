@@ -2,4 +2,4 @@
 
 Zainab Olomada
 
-Genny Moise from USA
+Genny Moise - USA
