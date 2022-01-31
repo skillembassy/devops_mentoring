@@ -7,6 +7,4 @@ Zainab Olomada - Nigeria
 
 Genny Moise - USA
 
-Zainab Olomada - Nigeria
-
-Cecilia Kanne
+Cecilia Kanne - USA
