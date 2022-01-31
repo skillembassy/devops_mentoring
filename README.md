@@ -6,3 +6,4 @@ Genny Moise
 
 Cecilia Kanne
 
+Shanika Smith - North Carolina
