@@ -1,3 +1,3 @@
 # devops_mentoring
 
-Zainab Olomada
+Zainab Olomada - Nigeria
