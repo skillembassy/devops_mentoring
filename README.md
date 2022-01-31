@@ -1,11 +1,12 @@
 # devops_mentoring
 
 
-Zainab Olomada
+Okpala Olisaemeka - Nigeria 
+
+Zainab Olomada - Nigeria
 
 Genny Moise - USA
 
 Zainab Olomada - Nigeria
 
 Cecilia Kanne
-
