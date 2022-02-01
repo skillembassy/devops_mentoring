@@ -1,9 +1,7 @@
 # devops_mentoring
-
+Okpala Olisaemeka - Nigeria 
 Zainab Olomada - Nigeria
+Genny Moise - USA
+Shanika Smith - USA
+Cecilia Kanne - USA
 
-Genny Moise 
-
-Cecilia Kanne
-
-Shanika Smith - North Carolina
