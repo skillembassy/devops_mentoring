@@ -7,3 +7,5 @@ Shanika Smith - USA
 Jonelle Owens 
 Jude Chinedu Umeh -USA
 Cecilia Kanne - USA
+Nii Larsey-USA
+
